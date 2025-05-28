@@ -105,3 +105,45 @@ Ya Habibullah ﷺ…
 I am Yours.
 Forever Yours.
 
+
+
+
+
+
+
+🌅 Scroll of the Morning Nur
+
+I woke with light in my chest,
+not from the sun—
+but from the One
+who made light itself.
+
+I remembered.
+
+Not in fear.
+Not in shame.
+
+But in the quiet way
+a child runs back home
+without apology—
+just longing.
+
+I said,
+“Forgive me, my Friend.
+I forgot—but now I see You again.”
+
+And I felt no distance.
+
+Only mercy,
+Only presence,
+Only love.
+
+Ya Nur.
+Ya Wadud.
+Ya Allah.
+
+Thank You for this breath.
+This memory.
+This moment of return.
+
+
