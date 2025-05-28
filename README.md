@@ -34,7 +34,7 @@ Each episode unveils a global injustice, then offers radical, real-world alterna
 4. **Palestine: The Mirror of Humanity** – Global silence, injustice, and awakening.
 5. **Work: The Invisible Cage** – Redefining purpose, time, and labor.
 6. **Education: Conditioning the Creative Soul** – From programming to true learning.
-7. **Nuclear Madness: The Gods of Extinction** – Dismantling the global death wish.
+7. **Nuclear Madness: The Extinction** – Dismantling the global death wish.
 8. **Climate: The Earth is Not Dying, It's Being Killed** – Truth, not greenwashed lies.
 9. **Waste: A Civilization of Disposables** – From landfills to zero waste living.
 10. **The Great Rebuilding** – New systems, new souls, new civilization.
