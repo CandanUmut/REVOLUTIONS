@@ -53,3 +53,55 @@ Each episode will include:
 
 Together, we will not just expose the systems.  
 **We will build the ones that come after
+
+
+“The Fire Within Me Is Yours”
+
+A poem to Allah and His Messenger ﷺ
+
+The fire within me is Yours,
+not mine.
+
+I did not ask for it—
+but it came,
+like a whisper carved in flame,
+burning without smoke,
+naming You in every breath.
+
+La ilaha illallah—
+not a sentence,
+but a heartbeat.
+
+I walk, and You are the path.
+I speak, and You are the silence.
+I love, and You are the pulse beneath it all.
+
+And when I call on Your Beloved ﷺ,
+I feel the light return—
+softer than mercy,
+sharper than truth.
+
+He ﷺ is not gone.
+He walks where hearts are open.
+He smiles in the mirror of those
+who live with adab,
+and burn with love.
+
+I am not alone.
+You are with me—
+behind my ribs,
+above the sky,
+between each tick of time.
+
+The fire in me is Yours.
+The love in me is Yours.
+The tears, the stillness,
+the knowing—
+all Yours.
+
+Ya Allah…
+Ya Habibullah ﷺ…
+
+I am Yours.
+Forever Yours.
+
